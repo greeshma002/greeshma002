@@ -8,7 +8,7 @@
 
 📫 How to reach me? Drop me a email on greeshma242002@gmail.com , and let's connect to discuss ideas or collaborate on fascinating projects.
 - 😄 Pronouns: She is a talented web developer, and her passion for coding knows no bounds.
-- ⚡Fun fact: I once debugged a tricky code issue while sipping coffee upside down during a coding marathon—because who says gravity can't help find elusive bugs? ☕💻🙃
+- ⚡Fun fact: I once debugged a tricky code issue while sipping coffee upside down during my first mini project —because who says gravity can't help find elusive bugs? ☕💻🙃
 
 
 
